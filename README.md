@@ -1,0 +1,2 @@
+# scriptjust-fake
+idk lol
